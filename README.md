@@ -1,1 +1,1 @@
-I'm gachon uuniversity student
+I'm gachon university student
